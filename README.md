@@ -1,3 +1,5 @@
 Olá, eu criei esse jogo para colocar em pratica o conteudo que eu aprendi em cursos online.
 Me diverti muito no processo e espero que se voce esta tentanto recriar consiga aproveitar tbm, se houver algum enteresse em contratar meus servicos entre em contato comigo pois eu estou ansioso para começar a trabalhar na area.
+
+
 Hi, I created this game to put into practice the content I learned in online courses. I had a lot of fun in the process and I hope that if you are trying to recreate it you can enjoy it too. If you are interested in hiring my services, please contact me because I am eager to start working in this area.
